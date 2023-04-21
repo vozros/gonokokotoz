@@ -14,3 +14,7 @@ gonokok e toz pidori
 
      the added content is up to 230421 date number here
      
+ZALUPA KONSKY _ upon pushing all the shit _ now just checking if those contents came from remote      
+     
+
+     
