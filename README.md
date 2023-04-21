@@ -18,3 +18,5 @@ ZALUPA KONSKY _ upon pushing all the shit _ now just checking if those contents 
      
 
      
+ no add no nothing made changes ( ZALUPA KO..) to the readme 
+ only literal PULL command .. hm .. fking mistery
